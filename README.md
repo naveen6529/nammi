@@ -1,2 +1,2 @@
-# nammi
-ni enkhamma
+# nammina
+ni enkhamma haa ha haaa
