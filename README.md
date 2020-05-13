@@ -1,0 +1,2 @@
+# nammi
+ni enkhamma
